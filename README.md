@@ -1,1 +1,9 @@
 # blabla
+## Milosz Szymanek 28 years old from Poland.
+
+## How to make a proper brew
+1. Treat your water kindly. Run the tap a little so the water's nicely aerated, and only boil it once to keep the oxygen level up. ...
+2. Add tea and water. Pop a tea bag into your mug, pour over the hot water and stir briefly.
+3. Wait patiently. ...
+4. Give it a squeeze. ...
+5. Customise your brew.
